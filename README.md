@@ -18,7 +18,7 @@ INXP⠀⠀。⠀5w4⠀⠀。⠀true neutral⠀⠀。⠀mel - phleg
 <b>002⠀:⠀before⠀you⠀interact</b>
 </p>
 <p align="center">
-you⠀may⠀call⠀me⠀rem⠀! !⠀⠀oor⠀the⠀name⠀of⠀the<br>
+hi⠀!⠀⠀call me⠀rem⠀/⠀ruin⠀!⠀⠀or⠀the⠀name⠀of⠀the<br>
 character⠀i'm⠀cosplaying⠀if⠀i'm⠀playing⠀pony town
 <p align="center">
 always⠀iwc⠀⠀。⠀⠀often⠀anxious⠀&⠀may⠀be⠀blunt<br>
@@ -38,7 +38,8 @@ II:⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ray⠀(the promised neverland)<
 III:⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀ madotsuki⠀(yume nikki)<br>
 IV:⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀L lawliet⠀(death note)<br>
 V:⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀near / nate river (death note)<br>
-VI:⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀two time (forsaken)
+VI:⠀two time (forsaken ; no, i don't support spawnism.)<br>
+VII:⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀princess luna (MLP)
 
 
 </p>
