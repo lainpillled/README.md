@@ -18,7 +18,7 @@ INXP⠀⠀。⠀5w4⠀⠀。⠀true neutral⠀⠀。⠀mel - phleg
 <b>002⠀:⠀before⠀you⠀interact</b>
 </p>
 <p align="center">
-hi⠀!⠀⠀call me⠀rem⠀/⠀ruin⠀!⠀⠀or⠀the⠀name⠀of⠀the<br>
+hi⠀!⠀⠀call me⠀rem⠀/⠀rin⠀!⠀⠀or⠀the⠀name⠀of⠀the<br>
 character⠀i'm⠀cosplaying⠀if⠀i'm⠀playing⠀pony town
 <p align="center">
 always⠀iwc⠀⠀。⠀⠀often⠀anxious⠀&⠀may⠀be⠀blunt<br>
